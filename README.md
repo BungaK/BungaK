@@ -37,7 +37,7 @@
   <br>
   <br>
  
-this guy is roaming around campsite, beware of his predatory behaviour. he acts innocent, and will manipulate you.
+this guy is roaming around campsite and bakery, beware of his predatory behaviour. he acts innocent, and will manipulate you.
 
 this is a dedicated call out post of a creep, delusional, hypocrite, irresponsible, straight up predatory behaviour of a supposed “19” years old femboy.
 
