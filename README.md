@@ -1,4 +1,4 @@
-<h1 align="center">°×• Animation Meme YCH OPEN •×°</h1>
+<h1 align="center">°×• Animation Meme YCH CLOSED SORRY !! •×°</h1>
 
 <h3 align="center">CHANGE THE FORMALITY</h3>
 <p align="center">https://youtu.be/YqdEtzyO7R0?si=EyjeoW2ZyNAmIFsv</p>
@@ -18,4 +18,4 @@
 
 (Can change background colours along with the patterns/element to match with your oc for free!!
 
-<h3 align="center"> BID IN THE YOUTUBE LINK'S PINNED COMMENT, THANK YOU<3 </h3>
+<h3 align="center"> SOMEONE HAD PLACED AB1, STAY TUNED FOR MY NEXT YCH !! <3 </h3>
