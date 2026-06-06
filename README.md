@@ -11,10 +11,10 @@
   PAYPAL USD ONLY
 </p>
 
-- SB: $30
+- SB: $20
 - MI: +$5
-- AB1: $70 (+ Bonus chibi illustration (can be fanart or your oc n' you choose the pose)
-- AB2: $90 (+ Bonus chibi illustration (can be fanart or your oc n' you choose the pose + tweened gif of the chibi illustration)
+- AB1: $50 (+ Bonus chibi illustration (can be fanart or your oc n' you choose the pose)
+- AB2: $70 (+ Bonus chibi illustration (can be fanart or your oc n' you choose the pose + tweened gif of the chibi illustration)
 
 (Can change background colours along with the patterns/element to match with your oc for free!!
 
