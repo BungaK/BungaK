@@ -4,11 +4,10 @@
 <p align="center">https://youtu.be/uwqPcH5JHZw?si=B-1n3ZkbNxh9LO8M</p>
 
 <p align="center">
-  <img width="711" height="400" alt="Image" src="https://github.com/user-attachments/assets/1b1d2bbb-37aa-4114-9a9a-492f35ad93b5" />
+  <img width="640" height="360" alt="Image" src="https://github.com/user-attachments/assets/54f24d90-8a0b-4ca0-a09e-22c1575b1489" />
 </p>
 
 <p align="center">
-  Thank you for all the support on this YCH!<br>
   Stay tuned for my next YCH! ✦<br>
   Commissions opening soon!! ♡
 </p>
