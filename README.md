@@ -4,7 +4,7 @@
 <p align="center">https://youtube.com/@kokori64</p>
 
 <p align="center">
-  <img width="400" height="225" alt="Image" src="https://github.com/user-attachments/assets/a25ea1dd-0aa8-4e9d-84cf-aeddcb7af746" />
+  <img width="400" height="225" alt="Image" src="https://github.com/user-attachments/assets/94aecb8d-9b02-4aed-bbf2-e16f7f5902dd" />
 </p>
 
 <p align="center">
