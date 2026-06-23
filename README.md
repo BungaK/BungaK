@@ -21,7 +21,7 @@ EXAMPLE
 Fully custom character
 </p>
 
-<h1 align="center">$15 USD+</h1>
+<h1 align="center">$15 USD+ || 300K+ IDR</h1>
 
 <p align="center">
 Starting price for a basic waving + blinking animation.
