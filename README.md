@@ -1,13 +1,51 @@
-<h1 align="center">°×• Animation Meme YCH COMING UP SOON !! •×°</h1>
-
-<h3 align="center">SNOOZE MEME</h3>
-<p align="center">https://youtube.com/@kokori64</p>
+<h1 align="center">✦ CUSTOM ANIMATED PFPs ✦</h1>
 
 <p align="center">
-  <img width="400" height="225" alt="Image" src="https://github.com/user-attachments/assets/94aecb8d-9b02-4aed-bbf2-e16f7f5902dd" />
+Bring your OC's to life with a simple looping animation !!
 </p>
 
 <p align="center">
-  Releases on late June or early July<br>
-  Commissions opening soon!! ♡
+EXAMPLE
+</p>
+
+<p align="center">
+<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/8ad9706e-876d-4f36-8c9e-859aa67d1337" />
+
+<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/eec20355-d1d8-415d-a013-5f70bc404d17" />
+</p>
+
+<h2 align="center">Waving + Blinking</h2>
+
+<p align="center">
+2-second seamless loop<br>
+Fully custom character
+</p>
+
+<h1 align="center">$15 USD+</h1>
+
+<p align="center">
+Starting price for a basic waving + blinking animation.
+</p>
+
+<hr>
+
+<h3 align="center">What can be added?</h3>
+
+<p align="center">
+Extra movement<br>
+Additional expressions<br>
+Props & accessories<br>
+Longer animations<br>
+</p>
+
+<p align="center">
+Custom pricing available depending on complexity.
+</p>
+
+<hr>
+
+<h2 align="center">Interested?</h2>
+
+<p align="center">
+Discord: <b>@Kokori_.</b>
 </p>
