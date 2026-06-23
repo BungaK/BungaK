@@ -9,9 +9,9 @@ EXAMPLE
 </p>
 
 <p align="center">
-<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/8ad9706e-876d-4f36-8c9e-859aa67d1337" />
+<img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/8ad9706e-876d-4f36-8c9e-859aa67d1337" />
 
-<img width="400" height="400" alt="Image" src="https://github.com/user-attachments/assets/eec20355-d1d8-415d-a013-5f70bc404d17" />
+<img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/eec20355-d1d8-415d-a013-5f70bc404d17" />
 </p>
 
 <h2 align="center">Waving + Blinking</h2>
