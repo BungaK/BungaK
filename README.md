@@ -14,7 +14,11 @@ EXAMPLE
 <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/eec20355-d1d8-415d-a013-5f70bc404d17" />
 </p>
 
-<h2 align="center">Waving + Blinking</h2>
+<h2 align="center">Waving + Blinking YCH</h2>
+
+<p align="center">
+<p <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/c0e2baba-871d-4788-88b1-7784611c4616" />
+</p>
 
 <p align="center">
 2-second seamless loop<br>
