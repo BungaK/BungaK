@@ -17,7 +17,7 @@ EXAMPLE
 <h2 align="center">Waving + Blinking YCH</h2>
 
 <p align="center">
-<p <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/c0e2baba-871d-4788-88b1-7784611c4616" />
+<img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/c0e2baba-871d-4788-88b1-7784611c4616" />
 </p>
 
 <p align="center">
