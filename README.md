@@ -12,7 +12,7 @@ Fully custom character
 <h1 align="center">$15 USD+ || 300K+ IDR</h1>
 
 <p align="center">
-Starting price for a basic waving + blinking animation.
+Starting price for the YCH is $15 flat!!
 </p>
 
 <hr>
