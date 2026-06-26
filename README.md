@@ -9,7 +9,7 @@
 Fully custom character
 </p>
 
-<h1 align="center">$15 USD+ || 300K+ IDR</h1>
+<h1 align="center">$15 USD+ || 250K+ IDR</h1>
 
 <p align="center">
 Starting price for the YCH is $15 flat!!
