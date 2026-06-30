@@ -7,13 +7,13 @@
 
 <p align="center">
 2-second seamless loop<br>
-Fully custom character
+Fully custom character (OC/Human, n' Furry . Game Characters)
 </p>
 
 <h1 align="center">$15 USD+ || 250K+ IDR</h1>
 
 <p align="center">
-Starting price for the YCH is $15 flat!!
+Starting price for the YCH is $15 flat!! (+$5 complicated characters)
 </p>
 
 <hr>
