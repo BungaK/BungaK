@@ -1,13 +1,17 @@
 <h2 align="center">Waving + Blinking YCH</h2>
 
 <p align="center">
+($70/$160 goal to buy a new phone, this phone is 6 years old n' laggy)
+  </p>
+  
+<p align="center">
 <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/c0e2baba-871d-4788-88b1-7784611c4616" />
   <img width="300" height="300" alt="Image" src="https://github.com/user-attachments/assets/0dd4abf3-6e70-4118-89a8-5c4ba7557020" />
 </p>
 
 <p align="center">
 2-second seamless loop<br>
-Fully custom character (OC/Human, n' Furry . Game Characters)
+Fully custom character (Human, Furry, Ponies . OC or Game Characters)
 </p>
 
 <h1 align="center">$15 USD+ || 250K+ IDR</h1>
