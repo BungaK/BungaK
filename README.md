@@ -17,7 +17,10 @@ Fully custom character (Human, Furry, Ponies . OC or Game Characters)
 <h1 align="center">$15 USD+ || 250K+ IDR</h1>
 
 <p align="center">
-Starting price for the YCH is $15 flat!! (+$5 complicated characters)
+Starting price for the YCH is $15 flat!! (+$5 complicated characters)<br>
+  You'll get;<br>
+  Static image (with paw + no paw)<br>
+  Animated GIF (with paw + no paw)<br>
 </p>
 
 <hr>
