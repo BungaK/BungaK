@@ -20,6 +20,7 @@ Fully custom character (Human, Furry, Ponies . OC or Game Characters)
 You'll get;<br>
   Static image (with paw + no paw)<br>
   Animated GIF (with paw + no paw)<br>
+  No watermark, all yours !!
 </p>
 
 <hr>
