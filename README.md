@@ -14,7 +14,7 @@
 Fully custom character (Human, Furry, Ponies . OC or Game Characters)
 </p>
 
-<h1 align="center">$15+ USD || 250K+ IDR</h1>
+<h1 align="center">$15+ USD || 50K+ IDR</h1>
 <p align="center">
   $15 USD - flat colours<br>
   $20 USD - simple shading<br>
