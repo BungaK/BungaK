@@ -2,7 +2,7 @@
 <h4 align="center">Dai-Dai-Dai Kirai meme</h4>
 
 <p align="center">
-  <img width="50%" alt="image" src="https://github.com/user-attachments/assets/2936e7a1-fdc6-4dc7-89d3-207565f4394b" />
+  <img width="120%" alt="image" src="https://github.com/user-attachments/assets/a03adf13-1b81-4e9f-9ec4-96695bd92cbf" />
 </p>
 
 <p align="center">
