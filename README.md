@@ -1,4 +1,16 @@
-<h1 align="center">🌸 COMMISSIONS OPEN!! 🌸</h1>
+<h1 align="center">🌻 YCH AUCTION OPEN 🌻</h1>
+<h4 align="center">Dai-Dai-Dai Kirai meme</h4>
+
+<p align="center">
+  <img width="50%" alt="image" src="https://github.com/user-attachments/assets/2936e7a1-fdc6-4dc7-89d3-207565f4394b" />
+</p>
+
+<p align="center">
+https://youtu.be/XS9YJvYuBv0?si=kJX9r66Blr431sbD <br>
+Bid here !! Starting Bid starts from $60 USD, thank you !!
+</p>
+  
+<h1 align="center">🌸 COMMISSIONS OPEN 🌸</h1>
 
 <p align="center">
   <img width="48%" alt="Image" src="https://github.com/user-attachments/assets/4b3836cb-b176-4d48-9816-3c4ad5e57d09" />
