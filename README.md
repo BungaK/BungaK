@@ -7,7 +7,7 @@
 
 <p align="center">
 https://youtu.be/XS9YJvYuBv0?si=kJX9r66Blr431sbD <br>
-Bid here !! Starting Bid starts from $60 USD, thank you !!
+Bid here !! Starting Bid starts from $40 USD, thank you !!
 </p>
   
 <h1 align="center">🌸 COMMISSIONS OPEN 🌸</h1>
