@@ -8,7 +8,6 @@
   $15 - flat colours <br>
   $20 - simple shading <br>
   $25 - fully rendered <br>
-  https://www.furaffinity.net/view/65890251/
 </p>
 
 <h1 align="center">🌻 YCH AUCTION OPEN 🌻</h1>
