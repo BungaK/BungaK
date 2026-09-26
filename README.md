@@ -1,16 +1,4 @@
-<h1 align="center">🧋 YCH OPEN (0/5) 🧋</h1>
-<h4 align="center">Yummy!</h4>
-
-<p align="center">
-  <img width="70%" alt="Image" src="https://github.com/user-attachments/assets/b2a4f80d-0bd8-42c3-8905-42a32533e740" />
-</p>
-<p align="center">
-  $15 - flat colours <br>
-  $20 - simple shading <br>
-  $25 - fully rendered <br>
-</p>
-
-<h1 align="center">🌻 YCH AUCTION OPEN 🌻</h1>
+<h1 align="center">🌻 YCH AUCTIONS OPEN 🌻</h1>
 <h4 align="center">Dai-Dai-Dai Kirai meme</h4>
 
 <p align="center">
