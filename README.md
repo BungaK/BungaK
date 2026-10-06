@@ -1,4 +1,15 @@
 <h1 align="center">🌻 YCH AUCTIONS OPEN 🌻</h1>
+<h4 align="center">BINOMI meme</h4>
+
+<p align="center">
+  <img width="70%" alt="image" src="https://github.com/user-attachments/assets/85fabfb6-9ef9-4cda-bef6-406dd2d4ccd0" />
+</p>
+
+<p align="center">
+https://youtu.be/XS9YJvYuBv0?si=kJX9r66Blr431sbD <br>
+Bid here !! Starting Bid starts from $30 USD
+</p>
+
 <h4 align="center">Dai-Dai-Dai Kirai meme</h4>
 
 <p align="center">
@@ -7,7 +18,7 @@
 
 <p align="center">
 https://youtu.be/XS9YJvYuBv0?si=kJX9r66Blr431sbD <br>
-Bid here !! Starting Bid starts from $40 USD, thank you !!
+Bid here !! Starting Bid starts from $40 USD
 </p>
   
 <h1 align="center">🌸 COMMISSIONS OPEN 🌸</h1>
@@ -21,7 +32,7 @@ Bid here !! Starting Bid starts from $40 USD, thank you !!
 
 <p align="center">
 Discord: @Kokori._ <br>
-Twitter/X: @KokoBun <br>
+Twitter/X: @KokoriBun <br>
 TikTok: @KokoBunga_. <br>
 Instagram: @KokoBunga_. <br>
 </p>
