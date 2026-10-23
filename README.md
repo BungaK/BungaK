@@ -19,7 +19,7 @@
   Personalised Use only (profile picture, and upload with credit) <br>
 </p>
 
-<h3 align="center">DM me through Discord: Kokori_.
+<h3 align="center">DM me through Discord: @Kokori._ or other Socials!
 <p align="center">
 "Hello, i want to buy SleepyPlush YCH, here's my character sheet and the plushie is (name) from (franchise). I want "(50% upfront/100% upfront/Payment Plan)."
 </p>
