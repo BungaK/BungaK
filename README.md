@@ -2,8 +2,8 @@
 <h3 align="center">0/3 slot!</h3>
 
 <p align="center">
-<img width="30%" alt="Image" src="https://github.com/user-attachments/assets/a5dc5987-a81f-488f-b9f0-43baf7a49f52" />
-<img width="30%" alt="Image" src="https://github.com/user-attachments/assets/ec177fc0-e44a-48eb-9762-7c2e5de34fe3" />
+<img width="40%" alt="Image" src="https://github.com/user-attachments/assets/a5dc5987-a81f-488f-b9f0-43baf7a49f52" />
+<img width="40%" alt="Image" src="https://github.com/user-attachments/assets/ec177fc0-e44a-48eb-9762-7c2e5de34fe3" />
 </p>
 
 <p align="center">
@@ -14,7 +14,7 @@
 <p align="center">
   TOS; <br>
   Finished YCH will be send through Google Drive link with No Watermark <br>
-  50% upfront or 100% upfront payment <br>
+  50% upfront or 100% upfront payment (PayPal Invoice) <br>
   Payment Plans also accepted!—10 USD a week! <br>
   Personalised Use only (profile picture, and upload with credit) <br>
 </p>
