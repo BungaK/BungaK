@@ -9,7 +9,7 @@
 <p align="center">
   $30 USD each (PayPal only!) <br>
   CAN CHANGE THE PLUSHIE TO YOUR FAVOURITE CHARACTERS/FRANCHISES free of charge! <br>
-  (Super Mario, Sonic, Minecraft, Roblox, Any) <br>
+  (Super Mario, Sonic, Minecraft, Roblox, MyLittlePony, Etc.) <br>
 
 <p align="center">
   TOS; <br>
